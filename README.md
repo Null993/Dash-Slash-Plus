@@ -1,4 +1,4 @@
-# Hollow Knight Dash Slash Plus Mod
+# 介绍|Introduction
 
 [中文](#空洞骑士劈砍冲刺增强mod) | [English](#hollow-knight-dash-slash-plus-mod)
 
